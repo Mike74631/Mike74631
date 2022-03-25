@@ -15,6 +15,6 @@ You can contact me if interested at MRB74631@outlook.com
 I need a trading companion and someone that knows what the hell they're doing on 
 her, I've accumulated a lot of stocks and coins but I don't even have the software to 
 receive it at the moment on the purchases I've already made, that art separated 
-throughout in different areas in my life one Being Coinbase where I keep a lot of my 
+throughout different areas in my life one Being Coinbase where I keep a lot of my 
 supplies and I would like someone to help me learn how to do all of this as well and  
 share the profits with me that I've already accumulated And of course make more.
